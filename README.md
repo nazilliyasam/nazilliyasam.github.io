@@ -1,2 +1,2 @@
-# nazilliyasampsikoloji.github.io
+# nazilliyasampsikoloji.com
 Nazilli Yaşam Psikoloji Websitesi
